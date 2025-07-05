@@ -1,0 +1,1 @@
+You play as Mr. Cipher, who`s an agent gone rogue . The city’s systems have been hijacked by The Disconnect. Run, jump and fight through 5 corrupted city zones inspired by real-world cyber threats. Use parkour agility and raw street-fighting skills to outrun firewalls and smash sniffer bots and confront each zone’s sinister AI guardian.
